@@ -17,4 +17,4 @@ I love asian and mid asian food, like lagman, plov and beshbarmak.
 3. France
 
 ### Contact 
-Follow me [on twitter](iSuluunya).
+Follow me [on twitter](https://twitter.com/iSuluu_Bus).
